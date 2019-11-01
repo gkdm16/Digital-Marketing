@@ -1,2 +1,2 @@
-# Digital-Marketing
-Digital Marketing - SEO, SEM, SMO, SMM, Email Marketing &amp; YouTube 
+# Global Digital Marketing Solutions
+Digital Marketing Solutions - SEO, SEM, SMO, SMM, Email Marketing &amp; YouTube 
